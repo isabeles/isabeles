@@ -1,4 +1,4 @@
-### Hi! I'm Isabele.
+### Hi! I'm Isabele. 🪐
 
 <div align="center"> 
 	<a href="https://github.com/isabeles">
